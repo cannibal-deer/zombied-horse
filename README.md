@@ -3,7 +3,7 @@
 <br>
 <br>
 
-<div align="center"> Hi Howdy! I'm Kier and below are some of my links  </div>
+<div align="center"> Hi Howdy! I'm Kier and below are some of my links  ₊ ꒷꒥  </div>
 
 <br>
 <p align="center"><img width="750" height="500" alt="tumblr_1f7341e06293f3419fa84c8f06d45738_665febf9_1280" src="https://github.com/user-attachments/assets/5957cd0d-5dd9-4a37-b185-a2a35975b1b0" /></p>
