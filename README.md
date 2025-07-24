@@ -9,7 +9,7 @@
 <p align="center"><img width="750" height="500" alt="tumblr_1f7341e06293f3419fa84c8f06d45738_665febf9_1280" src="https://github.com/user-attachments/assets/5957cd0d-5dd9-4a37-b185-a2a35975b1b0" /></p>
 <br>
 
-( ´ཀ` ) ⋮ [Prns](https://en.pronouns.page/@stableboy) ― [Rentry](https://rentry.co/leadshots) ― [Ata](https://wvlff.atabook.org/) ﾒ
+( ´ཀ` ) ⋮ [Prns](https://en.pronouns.page/@stableboy) ― [Rentry](https://rentry.co/leadshots) ― [Ata](https://wvlff.atabook.org/) ― [guns.lol](https://guns.lol/kierthurs) ﾒ
 
 <br>
 <br>
